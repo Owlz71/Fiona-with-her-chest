@@ -60,7 +60,13 @@ Day1
 
 魔法气体,mouse sex
 
+kuchi koki
+双人动画 关键部位阻尼追踪 
+动画摄影表  
 
+orgasm的动画
+
+渲染 环境？
 
 Day2
 
